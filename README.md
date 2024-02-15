@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Swallowg
+- 👀 I’m interested in sth new
+- 🌱 I’m currently learning IT and English
